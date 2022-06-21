@@ -1,4 +1,4 @@
-### Hi there <img src='https://media.giphy.com/media/iDOOSqoC0k3VeT9rd5/giphy.gif' width='30px'>
+### Hi there <img src='https://media.giphy.com/media/iDOOSqoC0k3VeT9rd5/giphy.gif' width='25px'>
 
 
 ### Меня зовут Александр / My name is Alexandr ###
